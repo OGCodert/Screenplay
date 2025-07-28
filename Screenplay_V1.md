@@ -533,6 +533,111 @@ I wonder if you’re safe.
 
 I wonder if you blame me.
 
+Diary Entry — October 17, 2023
+
+Amal – Rafah, Gaza Strip
+
+Tuesday, October 17, 2023
+
+There was no warning today.
+
+Just a sound, like the sky ripping open from the inside.
+
+We were sitting in the courtyard — the only place left where the walls aren’t caving in. Mama was washing Lina’s hair with a bottle of water we bought off a man with a donkey cart. I was folding the same clothes I folded yesterday. That’s how we pretend we still live. We do chores.
+
+Then we heard the radio.
+
+“Massive explosion at Al-Ahli Hospital in Gaza City. Hundreds feared dead.”
+
+The voice trembled. Even the radio man was crying.
+
+Someone nearby screamed.
+
+The neighbors flooded into the alley. Some were shouting, some silent. A woman ran past us with her baby in her arms and blood on her face, even though the hospital is hours north. The fear traveled faster than the blast.
+
+We don’t know what happened.
+
+Some say it was Israel. Some say it was a rocket that fell too soon. Some say it was a sign from God.
+
+I don’t care what it was.
+
+I only know that bodies are being pulled from fire and that someone’s daughter was turned into ash while waiting for medicine.
+
+I only know that the hospital was supposed to be safe. That’s what they told us. “Go to the hospitals if the bombing gets too close.”
+
+Mama started packing again. She didn’t say where we’d go. She just kept folding things we don’t need. A pair of shoes Lina outgrew last year. A sweater missing a sleeve.
+
+I stood in the doorway and looked up. The sky was quiet again.
+
+It’s the quiet I can’t stand anymore.
+
+I tried to write you earlier, but my hand wouldn’t move. My body was here, but everything else was frozen. Like my thoughts got buried under that hospital too.
+
+How do I explain this to you, Yael?
+
+How do I explain what it feels like to wonder if your name might be next on the list of the dead, and no one would even know what it meant?
+
+I wish I could hear your voice.
+
+Just once.
+
+Amal
+
+⸻
+
+Diary Entry — October 17, 2023
+
+Yael – Temporary Shelter near Be’er Sheva, Israel
+
+Tuesday, October 17, 2023
+
+They showed the hospital on every screen today.
+
+I was walking past the shelter’s rec room when I saw the smoke first. Then the scrolling headline: “Blast at Gaza Hospital – Hundreds Dead.”
+
+The volume was off, but I didn’t need sound to feel it.
+
+The screen froze on a woman screaming beside a row of tiny bodies wrapped in blood-soaked cloth. One was still moving.
+
+I stopped walking.
+
+Someone behind me muttered, “Another Hamas trick.”
+
+Someone else said, “We don’t bomb hospitals.”
+
+The army said it was a misfire. A rocket from the other side. But I don’t know anymore.
+
+Eitan called me an hour later. I asked him if it was true. He said, “We would never target a hospital.”
+
+Then he said, “Don’t watch Al Jazeera. It’s propaganda.”
+
+But the footage looked real. The people looked real.
+
+I saw a little girl lying in the dirt with her mouth open, like she was still trying to call out for someone.
+
+I couldn’t stop thinking about you.
+
+Were you near it? Were you running too?
+
+I wanted to scream. Not at you — at him. At Eitan. At everyone who keeps telling me what to believe like I can’t see things for myself.
+
+I miss my parents. I miss Achi. I miss my house with the lemon tree outside.
+
+But more than anything, I miss certainty.
+
+I miss knowing who the good guys are.
+
+Maybe there are none.
+
+Maybe it’s just people, scared and broken, trying to make sense of things that don’t make sense.
+
+I still believe in you, Amal.
+
+I still believe this page can hold something the war can’t burn.
+
+Yael
+
+
 I want to believe this will end soon. But something deep inside me — deeper than bone — says it won’t. Not yet.
 
 I used to be afraid of loud sounds. Now I’m afraid of silence.
