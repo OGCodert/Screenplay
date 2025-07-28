@@ -787,3 +787,133 @@ Tonight, it feels like you’ve been swallowed.
 And maybe I have too.
 
 Yael
+
+Diary Entry — October 28, 2023
+
+Amal – Rafah, Gaza Strip
+
+Saturday, October 28, 2023
+
+I don’t know what time it is.
+
+The clock stopped yesterday. The batteries are gone. The electricity is gone. The sound is gone.
+
+The only thing that moves now is the candle.
+
+We’re underground. Not a real shelter — just the basement of a neighbor’s cousin’s house. The walls are damp. They smell like mold and dust and something older than war.
+
+We moved here when the last strike shook the windows out of their frames. The glass fell like rain. Lina screamed.
+
+I haven’t heard the radio in two days. The signal is dead. The men tried to climb to the roof with a broken antenna, but the sky was too quiet. That’s when we knew.
+
+The world is gone.
+
+Or we are.
+
+Mama cries at night now. Not loudly. Just this soft leaking sound, like the ceiling when it rains.
+
+Baba says we’ll be fine. But he keeps checking the door. He checks it every ten minutes, even though no one knocks anymore.
+
+I think the silence is driving everyone mad.
+
+I can still hear the bombing above us. Not like before — not sharp. Just like distant thunder that never ends. It doesn’t stop. Even when I close my ears, I feel it in my ribs.
+
+No one can call. No one can text. The phones are dead.
+
+I wrote you a letter in my mind. I do it every night.
+
+“Yael, today I washed my face in dust. Today I fed my sister the last can of beans. Today I saw a woman trying to bury her husband with a spoon.”
+
+But tonight I don’t want to write what I saw.
+
+I want to write what I remember.
+
+I remember your story about the lemon tree outside your window. The one your brother used to climb.
+
+I remember the way you described Achi — your dog — how he barked at birds like they were personal enemies.
+
+I remember the word you used once: safe.
+
+I don’t remember what that means anymore.
+
+I don’t know if this page will survive the night.
+
+The candle is almost gone.
+
+The world is gone.
+
+I’m still here. I think.
+
+Amal
+
+
+Diary Entry — October 28, 2023
+
+Yael – Temporary Shelter near Be’er Sheva
+
+Saturday, October 28, 2023
+
+I haven’t heard a single word from you.
+
+Not a line. Not a breath. Not even silence.
+
+Just nothing.
+
+Eitan hasn’t called.
+
+The soldiers in the shelter say it’s “expected.” That the blackout was part of the operation. That it’s safer this way.
+
+Safer for who?
+
+The television shows nothing. Just maps. Lines moving across borders. Circles around neighborhoods. A voice saying “strategic advancement.”
+
+But no people.
+
+No faces.
+
+I asked one of the women here if she thinks the children in Gaza are okay.
+
+She looked at me like I’d said something wrong. Then she said, “Our children come first.”
+
+I know what she meant. But I also know what I felt.
+
+I felt like someone had drawn a line around my heart and told me I wasn’t allowed to feel past it.
+
+I don’t want to stop writing you.
+
+But today I sat for hours with my notebook open and my hands frozen.
+
+It’s like… if I write your name now, and you’re already gone, it makes it real.
+
+I dreamed last night that we were walking down a hallway. A long hallway made of glass. And on the other side of the glass were all the people we’ve lost.
+
+Achi was there.
+
+My parents were there.
+
+Eitan was not.
+
+You were walking beside me. But when I turned to speak to you, you had no face.
+
+Just light.
+
+I think my mind is breaking.
+
+The volunteers bring food every day — hard bread, rice, cans of corn. I eat like it’s homework. Nothing has taste.
+
+Noa hasn’t spoken in two days. Her father was taken too. She sits beside me sometimes and draws pictures of trees with no leaves.
+
+The shelter smells like antiseptic and plastic.
+
+The blankets are thin. The nights are colder.
+
+I keep your name under my tongue like it’s a secret prayer.
+
+I don’t know if you’re alive.
+
+I don’t know if I am, either.
+
+But I’m still writing.
+
+Yael
+
