@@ -10,7 +10,6 @@ Scene opens on a candle flickering inside a cracked mason jar. The room is dim, 
 ⸻
 
 AMAL (V.O.)
-written in Arabic, translated visually into English
 
 Friday, October 6th, 2023
 
@@ -104,7 +103,6 @@ Scene opens in golden light. Wind brushes through sunflower fields. A girl sits 
 ⸻
 
 YAEL (V.O.)
-written in Hebrew, translated visually into English
 
 Friday, October 6th, 2023
 
@@ -188,7 +186,6 @@ Scene opens with sunlight cutting through a window — golden and calm — as th
 ⸻
 
 YAEL (V.O.)
-Written in Hebrew, translated to English
 
 Saturday, October 7th, 2023
 
@@ -306,7 +303,6 @@ Scene opens in amber dusk. A girl leans against the frame of a window with no gl
 ⸻
 
 AMAL (V.O.)
-written in Arabic, translated visually into English
 
 Saturday, October 7th, 2023
 
