@@ -643,3 +643,147 @@ I want to believe this will end soon. But something deep inside me — deeper th
 I used to be afraid of loud sounds. Now I’m afraid of silence.
 
 Amal
+
+Diary Entry — October 27, 2023
+
+Amal – Rafah, Gaza Strip
+
+Friday, October 27, 2023
+
+They keep coming.
+
+Families from Gaza City, from Beit Lahia, from Jabalia. Piled into donkey carts, onto bicycles, onto flatbed trucks with children tied to the sides so they don’t fall off.
+
+They pour into Rafah like a river that doesn’t know where it’s going — just that it has to keep moving or drown.
+
+The roads are packed with mattresses, birdcages, propane tanks, shoes without pairs. Some carry framed photos. Some carry only water. Some carry nothing but children.
+
+I saw an old man clutching a tomato plant. He held it like it was a baby.
+
+Mama opened our gate this morning to strangers.
+
+A woman and three children now sleep on the floor of our living room. The girl has burns on her face. Her name is Nour. She stares at me like she’s looking through fog.
+
+I gave her half a biscuit. She didn’t blink.
+
+Baba is tense. He walks around the house like a guard dog, watching the gate, listening to the sky.
+
+Yusuf hasn’t come back. We haven’t heard from him in two days.
+
+Mama says not to worry. But she looks out the window every few minutes like she expects him to crawl back in with blood on his shirt.
+
+The radio says there’s no more fuel.
+
+The water tanks are nearly empty.
+
+The baker around the corner sold his last loaf and boarded up his door.
+
+I heard a neighbor say, “The soldiers are coming.”
+
+The others said, “Don’t say it out loud. They’ll hear you.”
+
+What does it mean when people speak about fear like it’s a creature with ears?
+
+I tried to write a letter to you, Yael. Not here, but a real one — like in the beginning. I used the back of an old envelope and wrote:
+
+“I don’t know what will happen next. But I’m still here.”
+
+I folded it into my notebook. Maybe someday someone will find it.
+
+Or maybe it will burn with the rest of this house.
+
+Mama says we may have to leave. But Rafah is already overflowing. Where would we go? Egypt? They won’t open the gate. They just stand behind it and watch us collapse.
+
+We keep hearing words like invasion and incursion and total destruction.
+
+They sound like they belong in movies. But there are no movies here anymore.
+
+Just the waiting.
+
+Just the smoke.
+
+Just the sound of nothing, which is somehow worse than sirens.
+
+If this is my last page, I want it to matter.
+
+Yael — I still believe in our letters.
+
+Even if the power cuts. Even if the sky falls.
+
+I believe that a girl with a dog in a field of sunflowers once wrote to a girl in a basement in Rafah. And for a little while, the world was smaller, and softer, and almost kind.
+
+Amal
+
+Diary Entry — October 27, 2023
+
+Yael – Temporary Shelter near Be’er Sheva
+
+Friday, October 27, 2023
+
+Eitan isn’t answering.
+
+I’ve tried six times. No signal. No voicemail. Just silence.
+
+I keep telling myself it’s because they’re underground, or because the network is overwhelmed, or because he turned off his phone for security.
+
+But I don’t believe it.
+
+The TV in the shelter plays the same clips over and over again. Tanks lining up. Helicopters overhead. Soldiers praying before they go in.
+
+I saw Eitan’s unit badge on one of the uniforms. I stared at it for ten minutes.
+
+I think I’m trying to make him appear.
+
+Everyone is calling this a new phase.
+
+“The operation has begun.”
+
+“Ground forces have entered Gaza.”
+
+“The border is sealed.”
+
+It sounds clean, organized, professional. Like this is just another exercise. But I know better.
+
+There’s no more video from inside Gaza.
+
+No more news. No more interviews.
+
+Just blackness.
+
+“They’ve cut communications,” someone said. “No phones. No internet. Not even radio.”
+
+I looked at the screen and realized I couldn’t remember Amal’s voice anymore. Not that I ever really heard it. But in my head, she had one — soft, a little tired, but stubborn.
+
+What happens to a person when they vanish from the world’s map?
+
+Are they still real?
+
+There was a list posted in the lobby today. A new list of hostages.
+
+My parents’ names weren’t on it.
+
+That should make me feel better. It doesn’t. It just means they haven’t been found yet. Or identified. Or rescued.
+
+Someone from the army came to talk to the families. He said we should be proud. That our children and brothers and husbands were going in to “cleanse the threat.”
+
+I didn’t feel proud.
+
+I felt like I was standing at the edge of a pit, and someone was pushing everyone I loved into it.
+
+I sat with one of the other girls here — her name is Noa. She doesn’t talk much, but she let me braid her hair. We listened to the buzz of fluorescent lights together and pretended the war was outside. Not inside us.
+
+I wrote to Amal today — not really, just in my head.
+
+I said:
+
+“Are you alive? Is there light? Are you still holding a pen? Did your brother come back? Did he leave you too?”
+
+I want to believe you’ll answer.
+
+But tonight…
+
+Tonight, it feels like you’ve been swallowed.
+
+And maybe I have too.
+
+Yael
