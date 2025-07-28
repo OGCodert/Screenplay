@@ -393,3 +393,148 @@ I do not hate you.
 I only hate what is happening to both of us.
 
 Amal
+
+
+
+DIARY ENTRY — OCTOBER 8, 2023
+
+Yael – Temporary Shelter near Be’er Sheva
+
+Scene opens inside a makeshift shelter — an old community center with plastic mattresses and fluorescent lights. Children cry softly in the background. A soldier leans against the door, holding a clipboard. Yael sits on a cot in a corner, scribbling in her journal, knees pulled to her chest.
+
+⸻
+
+YAEL (V.O.)
+
+Sunday, October 8th, 2023
+
+I haven’t taken off my shoes. Not since yesterday.
+
+They smell like ash and Achi and blood. But if I take them off, I’m afraid it will all become real. That I’ll have to stop pretending this is just another emergency drill.
+
+They brought us here last night — what’s left of us. Survivors, they called us.
+
+But I don’t feel like I survived anything. I feel like I dissolved.
+
+The room is full of people who don’t talk. They sit in corners, some crying, some whispering into phones. A boy kept asking where his mother went. He wouldn’t stop. They gave him candy. He threw it.
+
+I asked one of the soldiers if they found my parents.
+
+He didn’t answer. He just nodded and wrote something down.
+
+Later, they told me they were “unaccounted for.”
+
+What does that mean, Amal? Does it mean dead? Does it mean missing? Does it mean I’m not supposed to ask anymore?
+
+Eitan called. Finally.
+
+He said he was being deployed to the south.
+
+“We’ll find them,” he said. “You’re safe now.”
+
+But I’m not safe. I’m not anything.
+
+I told him about Achi.
+
+He didn’t say anything for a long time. Then he whispered, “He was a good dog.”
+
+I could hear it — the crack in his voice.
+
+Eitan never cries. Not even when Savta died.
+
+I’m not sure if I cried either. I think I’m too tired to cry.
+
+They gave me a blanket. It smells like disinfectant and plastic. Everything here smells like that. And sweat. And leftover fear.
+
+A woman from some agency came to ask questions. She was kind, but too clean. She held my hand and said things like, “You’re being so brave.”
+
+But I’m not brave.
+
+I’m alone.
+
+I wish I could write to you. I wish the internet wasn’t broken. I wish your letters would fall from the sky like leaves.
+
+You’d know what to say. You always do.
+
+I’m not allowed to sleep next to the other families. They say I need space, or quiet, or maybe they just don’t know what to do with me.
+
+I hold the journal like it’s a person. I write in it like it’s a door.
+
+Eitan said something before he hung up.
+
+“Hold on, Yael. Just hold on.”
+
+So I hold this pen. I hold this page. I hold your name in my mouth like a prayer.
+
+Amal.
+
+I’m still here.
+
+I don’t know who I am now. But I’m still writing.
+
+Always,
+Yael
+
+Diary Entry – October 8, 2023
+
+Amal – Rafah, Gaza Strip
+
+Sunday, October 8, 2023
+
+Today the street outside my window changed shape.
+
+There used to be a bakery at the corner — the one with the faded green sign that always smelled like warm sesame and flour. I used to buy bread there with Lina, and the old man would wink at her and give her the crusty end for free.
+
+This morning it was gone.
+
+Not closed. Not damaged. Gone.
+
+A hole where the building used to be. Smoke pouring out like it had lungs of its own. Rubble spilling into the road like someone tipped the earth sideways.
+
+We were eating when it happened. Flatbread and cold tea. The explosion threw dust into our plates before we even heard the sound.
+
+I remember the windows shaking. I remember Mama’s hand on my shoulder, holding me in place like I might fly apart.
+
+Yusuf wasn’t home. Again.
+
+I walked outside after the dust settled. Baba didn’t stop me. Maybe he couldn’t move. Maybe he didn’t want to see.
+
+A boy I didn’t know was standing barefoot in the rubble. His face was gray with ash. His hands were open like he’d been about to catch something that never came.
+
+I passed what was left of the bakery. I didn’t recognize it at first. Then I saw a piece of the counter with a broken scale still attached.
+
+There was a woman kneeling in the street. Screaming. Not words. Just sound.
+
+Her dress was covered in blood, but I couldn’t tell if it was hers.
+
+No one moved her. No one said anything. We just stood there like shadows.
+
+The smell is still in my nose. Burned plastic. Crushed rock. Something worse underneath that I can’t name.
+
+I came back home and Lina asked where I went. I said nowhere. She nodded. She’s learning already.
+
+Baba packed a bag.
+
+Mama whispered with our neighbor about leaving. “They’ll bomb the crossings,” she said. “We have to go before it’s too late.”
+
+But where is there to go? Khan Younis? It’s burning too.
+
+The man on the radio said more airstrikes were coming.
+
+“Retaliation,” he called it.
+
+I think the sky is angry. Not just at us — at everyone.
+
+I sat in the stairwell with my notebook. It’s the only place that feels quiet.
+
+I tried to draw your face from memory, Yael. I don’t even know what you look like. But I imagine your hair is dark and your eyes are like dusk before it fades.
+
+I wonder if you’re safe.
+
+I wonder if you blame me.
+
+I want to believe this will end soon. But something deep inside me — deeper than bone — says it won’t. Not yet.
+
+I used to be afraid of loud sounds. Now I’m afraid of silence.
+
+Amal
