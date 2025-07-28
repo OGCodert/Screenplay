@@ -177,3 +177,223 @@ But instead I write.
 Always,
 
 Yael
+
+ 
+DIARY ENTRY — OCTOBER 7, 2023
+
+Yael – Kibbutz Be’eri, Southern Israel
+
+Scene opens with sunlight cutting through a window — golden and calm — as the distant hum of a morning begins. The camera is still. A bird lands on the windowsill. Then a single explosion in the distance. Barking. Then screams. The screen flickers. Everything shifts.
+
+⸻
+
+YAEL (V.O.)
+Written in Hebrew, translated to English
+
+Saturday, October 7th, 2023
+
+I don’t know if this is a letter, or if I’m just trying to prove I still exist.
+
+This morning started like any other.
+
+I woke up to Achi licking my feet. He always does that when the light hits his bowl and he thinks it’s breakfast time. The sun was rising slow. You know that quiet light we get in Be’eri — when everything turns pale orange, like the whole kibbutz is holding its breath? That’s what it was like.
+
+I sat up. I could hear Ima in the kitchen, humming. She always hums on Shabbat mornings. Eitan wasn’t home, of course. Abba was already dressed. He’s always dressed before sunrise.
+
+I was brushing Achi’s ears when it started.
+
+The first sound wasn’t a rocket. It was gunfire.
+
+Not from far. Not from the border. From here.
+
+We all froze. Then the siren came. But it wasn’t the usual warning — not the kind you hear during drills. It was the other one. The one we’ve never practiced.
+
+There was shouting outside. Not Hebrew. Fast, guttural.
+
+Abba grabbed me by the arm. “We go now.” His face — I’ve never seen it like that. Like something inside him snapped in two.
+
+We ran.
+
+Ima took the emergency bag. We ran barefoot to the shelter down the path, the one near the mango trees. Achi followed, barking.
+
+And then…
+
+Gunshots. From behind us. Then — a scream.
+
+I turned. Achi had stopped.
+
+I saw one of them — a man in black, with a green headband and a rifle that looked too big for a person.
+
+Abba shoved me forward.
+
+“Don’t look back!”
+
+I heard Achi yelp.
+
+That sound — I swear it split something inside me.
+
+We made it to the shelter. The door wouldn’t lock. Abba held it shut with his body. Ima was praying in whispers I didn’t recognize. I just sat there, shivering. There was blood on my feet but I didn’t know whose.
+
+They found us.
+
+The door opened.
+
+Three men. They pointed guns. Abba tried to speak. “We are civilians. She’s a child.”
+
+They shouted. Pushed him to the floor. Tied Ima’s hands.
+
+One of them looked at me and paused.
+
+He couldn’t have been older than Eitan. Maybe younger.
+
+“Come,” he said.
+
+I didn’t move. I couldn’t.
+
+Then they took them. My parents.
+
+They didn’t even look back at me. I don’t think they were allowed to.
+
+I don’t know how long I stayed in that shelter. Hours maybe. I only came out when the shooting stopped.
+
+The path was red.
+
+My neighbor’s front door was swinging on one hinge. There were shoes scattered in the dirt. A child’s sandal. Blood on a baby carriage.
+
+I walked to my house. The windows were blown out. My bookshelf was collapsed. My posters torn. The walls were scorched.
+
+Achi was lying near the steps.
+
+His fur was wet.
+
+I sat beside him and held his body until the soldiers came.
+
+They told me to get in a truck. I asked where my parents were.
+
+“We’re looking,” they said.
+
+They asked me if I had any family.
+
+“Eitan,” I whispered.
+
+They nodded.
+
+I haven’t stopped shaking since.
+
+I keep hearing the barking.
+
+I keep seeing the boy with the gun.
+
+Amal —
+
+This isn’t a war.
+
+This is something else.
+
+I don’t even know if this letter will reach you. But if it does, I want you to know… I’m still here.
+
+And I will keep writing, as long as I have pages left.
+
+Yael
+
+
+DIARY ENTRY — OCTOBER 7, 2023
+
+Amal – Rafah, Gaza Strip
+
+Scene opens in amber dusk. A girl leans against the frame of a window with no glass, watching the horizon pulse red. The light flickers against her face. The air trembles with the distant hum of jets. Somewhere, a radio whispers.
+
+⸻
+
+AMAL (V.O.)
+written in Arabic, translated visually into English
+
+Saturday, October 7th, 2023
+
+It began with silence.
+
+That’s how we knew something was wrong. Gaza is never truly silent. There’s always noise — the scraping of carts on concrete, the whining buzz of a generator, shouting in the alleys, the echo of water being carried from rooftop tanks.
+
+But today… the streets held their breath.
+
+Yusuf was already pacing by 7 a.m. I could hear his boots across the tiles. Mama asked him to sit, just once, to eat breakfast like a human being. He shook his head.
+
+“Something’s moving,” he said. “There’s fire in the air.”
+
+I didn’t understand. I still don’t.
+
+The radio came alive just after eight. Voices blurred together. Then words sharpened:
+
+“Operation across the border… militants inside Israeli territory… dozens dead… hostages taken…”
+
+Mama dropped the pot she was holding. The lid clattered like gunshots on the floor.
+
+I looked at Yusuf. His eyes didn’t move.
+
+“It’s started,” he said.
+
+The news was shaky, unreliable. One second it was about a music festival. The next — soldiers captured. Then — settlements burning.
+
+And then we lost the signal.
+
+Yusuf left the house without saying goodbye. Just grabbed his vest and rifle and slammed the door so hard that dust fell from the ceiling.
+
+I sat with Lina — my little sister. She kept asking if school was still open on Sunday.
+
+I wanted to laugh. Or cry. I did neither.
+
+At noon, the first planes came.
+
+We didn’t see them — not right away. But we heard them.
+
+A sound like the air being ripped in half. Like the sky being crushed under glass.
+
+Then the explosion.
+
+I saw it from the window. A column of fire rising over the rooftops in Khan Younis. A building disappearing into smoke. Then another.
+
+The sound came late. It always does.
+
+Mama screamed. Lina began to cry.
+
+Everything happened too fast after that.
+
+We grabbed what we could — bread, water, my school bag. We ran to the neighbor’s basement. The stairwell was already crowded. The air smelled like sweat and fear and something chemical I couldn’t name.
+
+There were so many of us down there. Twenty-three. Maybe more. One baby kept wailing until its mother wrapped him in a scarf.
+
+Someone had a small radio. We listened in fragments. Entire buildings gone. Families buried. Border closed.
+
+“We are under attack,” said the voice.
+
+No one needed to tell us. We could feel it in our teeth.
+
+I keep thinking about you, Yael.
+
+Are you alive? Are you safe?
+
+I imagine your kibbutz full of flowers. I imagine people running through the fields, their faces covered in dirt and blood. I imagine you curled under a table, or alone in a shelter, wondering what we’ve done.
+
+I want to tell you — I didn’t know.
+
+I didn’t want this.
+
+But there’s no way to send letters now.
+
+No mail trucks. No internet. Only fire.
+
+Mama says the strikes will continue all night. She says if we have to leave, we go south. But where is there to go, Yael? The sea? The wall?
+
+This house was never a castle. But it was ours.
+
+Now I look at the ceiling and wonder if it will hold.
+
+If you’re reading this someday — not now, but later, when this is all over — I want you to know something.
+
+Even now, in this place, on this day,
+
+I do not hate you.
+
+I only hate what is happening to both of us.
+
+Amal
